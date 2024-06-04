@@ -1,5 +1,17 @@
 # Open-shared-node
  # Open shared node～！Open shared node v2ray
+  # Share your own server nodes
+  # Location Los Angeles Room, YouTube 4k No pressure ~!!
+  # The restrictions on the user are as follows:
+  # 1, for learning scientific research, paper search, chatgpt ai tool use.
+  # 2, access to YouTube,
+  # 3, abide by the laws of the People's Republic of China,
+  # 4, do not talk about politics, incite religion and other activities.
+  # 5. Safeguard national sovereignty and unity.
+
+  # How to obtain the node can be sent to my email address 📮 : tianya2017@naver.com
+  # The content of the email is: explain your appeal and purpose.
+ 
  # 共享自己服务器节点
  # 位置洛杉矶机房，YouTube 4k 无压力～！！！
  # 对使用人的约束如下：
